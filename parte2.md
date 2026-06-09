@@ -1,0 +1,3 @@
+# parte 2
+
+começando a escrever parte 2...
